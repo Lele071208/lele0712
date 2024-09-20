@@ -1,1 +1,1 @@
-# quem leu é gay
+# sou fd
